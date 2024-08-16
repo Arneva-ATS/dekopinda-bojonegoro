@@ -1,1 +1,1 @@
-# dekopinda-bojonegoro
+# dekopinda-karanganyar
